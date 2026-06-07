@@ -21,5 +21,5 @@
 <p align="center">(  in progress srry ( ᵔ ⩊ ᵔ ) )</p>
 
 ###
-<p align="center">$\textcolor{#fcfdfd}{\textsf{heyy}}$
+<p align="center">$\textcolor{#6e93a4}{\textsf{heyy}}$
 
