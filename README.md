@@ -1,4 +1,4 @@
-<p align="left">﹌﹌﹌﹌﹌﹌﹌<br>𓏼 .   𓌔  ![Amy](https://img.shields.io/badge/Hola-Soy_Amy-ff69b4)   ノ   Flow𝚎r  ・ ✿  ．</p>
+<p align="left">﹌﹌﹌﹌﹌﹌﹌<br>𓏼 .   𓌔  amყ ノ   Flow𝚎r  ・ ✿  ．</p>
 
 ###
 
