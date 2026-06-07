@@ -7,7 +7,7 @@
 
 ###
 
-<h5 align="center">ִ    ࣪  theყ   ₒᵣ  them    ➣   6teen! #  Ი𐑼
+<h4 align="center">ִ    ࣪  theყ   ₒᵣ  them    ➣   6teen!   Ი𐑼
 
 ###
 
@@ -15,6 +15,6 @@
 
 ###
 
-<p align="center">(  in progress srry ( ᵔ ⩊ ᵔ ) )</p>
+<p align="right">(  in progress srry ( ᵔ ⩊ ᵔ ) )</p>
 
 ###
