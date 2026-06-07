@@ -3,7 +3,7 @@
 ###
 ###
 
-<p align="center">⑅   ݁ Ⓘ l𝚘v𝚎 mყ fri𝚎nds    ᵎᵎ    ︶   ꪆ<br> .    ㅤ۫　      ʾʿ    c + h anყ.        ۫     ♩ ⠀</h5>
+<h4 align="center">⑅   ݁ Ⓘ l𝚘v𝚎 mყ fri𝚎nds    ᵎᵎ    ︶   ꪆ<br> .    ㅤ۫　      ʾʿ    c + h anყ.        ۫     ♩ ⠀</h5>
 
 ###
 ###
@@ -13,7 +13,7 @@
 ###
 ###
 
-<p align="center">(ゝ。∂)    ๋   Chai    ᛝ     Nai  ♡</p>
+<h4 align="center">(ゝ。∂)    ๋   Chai    ᛝ     Nai  ♡</p>
 
 ###
 ###
