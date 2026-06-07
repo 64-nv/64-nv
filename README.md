@@ -1,4 +1,4 @@
-<p align="left">﹌﹌﹌﹌﹌﹌﹌<br>𓏼 .   𓌔  <span style="color:#6E93A4">amყ</span>   ノ   Flow𝚎r  ・ ✿  ．</p>
+<p align="left">﹌﹌﹌﹌﹌﹌﹌<br>𓏼 .   𓌔  <span color="color:#6E93A4">amყ</span>   ノ   Flow𝚎r  ・ ✿  ．</p>
 
 ###
 
