@@ -2,18 +2,18 @@
 
 ###
 
-< align="left">⑅     ݁Ⓘ l𝚘v𝚎 mყ fri𝚎nds    ᵎᵎ    ︶   ꪆ<br> .    ㅤ۫　      ʾʿ    c + h anყ.        ۫     ♩ ⠀</h5>
+<p align="center">⑅     ݁Ⓘ l𝚘v𝚎 mყ fri𝚎nds    ᵎᵎ    ︶   ꪆ<br> .    ㅤ۫　      ʾʿ    c + h anყ.        ۫     ♩ ⠀</h5>
 
 ###
 
-<h5 align="left">ִ    ࣪  theყ   ₒᵣ  them    ➣   6teen!   Ი𐑼</p>
+<h5 align="center">ִ    ࣪  theყ   ₒᵣ  them    ➣   6teen!   Ი𐑼</p>
 
 ###
 
-<p align="left">(ゝ。∂)    ๋   ㅤ Chai    ᛝ     Nai  ♡</p>
+<p align="center">(ゝ。∂)    ๋   ㅤ Chai    ᛝ     Nai  ♡</p>
 
 ###
 
-<p align="left">(  in progress srry ( ᵔ ⩊ ᵔ ) )</p>
+<p align="center">(  in progress srry ( ᵔ ⩊ ᵔ ) )</p>
 
 ###
