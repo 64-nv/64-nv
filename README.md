@@ -1,4 +1,4 @@
-<h3 align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌<br>𓏼 .   𓌔  amყ ノ   Flow𝚎r  ・ ✿  ．</p>
+<h3 align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌<br>𓏼 .   𓌔  $\textcolor{#92A7B0}{\textsf{amყ}}$ ノ   Flow𝚎r  ・ ✿  ．</p>
 
 ###
 ###
