@@ -3,7 +3,7 @@
 <p align="center">
   <img src="1000087907-removebg-preview.png"width="500">
 </p> 
-<h3 align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌<br>
+<h3 align="center">$\textcolor{#DDDFC7}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌}}$<br>
 <h2 align="center">𓏼    𓌔ㅤ۫　      $\textcolor{#4E80B4}{\textsf{am🅈}}$ ノ   $\textcolor{#BCCDBD}{\textsf{Flow𝚎r}}$  ㅤ۫　    ✿  ． 
 
 ###
