@@ -2,7 +2,7 @@
   <img src="1000087908.png"width="300">
 </p>
 <h3 align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌<br>
-<h2 align="center">𓏼 .    𓌔ㅤ۫　      $\textcolor{#B86F78}{\textsf{amყ}}$ ノ   $\textcolor{#3D4955}{\textsf{Flow𝚎r}}$  ㅤ۫　    ✿  ． 
+<h2 align="center">𓏼 .    𓌔ㅤ۫　      $\textcolor{#B86F78}{\textsf{am🅈}}$ ノ   $\textcolor{#3D4955}{\textsf{Flow𝚎r}}$  ㅤ۫　    ✿  ． 
 
 ###
 
