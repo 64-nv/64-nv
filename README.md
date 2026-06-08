@@ -12,7 +12,6 @@
 
 <h3 align="center">ִ    ࣪  $\textcolor{#3D4955}{\textsf{theყ}}$   $\textcolor{#EFFAEA}{\textsf{ₒᵣ}}$  $\textcolor{#3D4955}{\textsf{them}}$    ➣  ㅤ۫　  $\textcolor{#10404C}{\textsf{6teen}}$!  ㅤ۫　  Ი𐑼 .
 
-
 ###
 
 <h3 align="center">(ゝ。∂) . ㅤ۫　  $\textcolor{#B86F78}{\textsf{Chai}}$   ᛝ    $\textcolor{#B86F78}{\textsf{Nai}}$  ♡</p>
