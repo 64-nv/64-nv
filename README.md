@@ -21,5 +21,5 @@
 ###
 ###
 
-<p align="center">(  in progress srry ( TT_TT) )</p>
+<p align="center">(  in progress srry (⁠ ･ั⁠ ω⁠ ･ั ))</p>
 <img src="26ab52b000cf94c3c2941e7812ef61e2.gif" width="400">
