@@ -1,7 +1,7 @@
 <p align="center">$\textcolor{#DDDFC7}{\textsf{M🄴🄴t Flowₑᵣ!}}$
 <p align="center">$\textcolor{#4E80B4}{\textsf{𝐖el𝚌o̲m̲e̲}}$
 <p align="center">
-  <img src="8fa06b5e525afe33c87ec083ad8baaf8.gif"width="500">
+  <img src="1000087907-removebg-preview.png"width="500">
 </p> 
 <h3 align="center">$\textcolor{#DDDFC7}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌}}$<br>
 <h2 align="center">𓏼    𓌔ㅤ۫　      $\textcolor{#4E80B4}{\textsf{am🅈}}$ ノ   $\textcolor{#BCCDBD}{\textsf{Flow𝚎r}}$  ㅤ۫　    ✿  ． 
