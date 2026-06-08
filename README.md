@@ -1,5 +1,5 @@
 <p align="center">$\textcolor{#DDDFC7}{\textsf{M🄴🄴t Flowₑᵣ!}}$
-<p align="center">$\textcolor{#4E80B4}{\textsf{𝐖el𝚌o̲m̲e̲}}$
+<p align="center">$\textcolor{#4E80B4}{\textsf{𝐖el𝚌o̲m̲e̲      }}$   ヽ(o^ ^o)ﾉ
 <p align="center">
   <img src="1000087907-removebg-preview.png"width="500">
 </p> 
