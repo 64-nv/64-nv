@@ -16,7 +16,7 @@
 
 ###
 
-<h3 align="center">(ゝ。∂) . ㅤ۫　  $\textcolor{#BCCDBD}{\textsf{Chai}}$   ᛝ    $\textcolor{#DDDFC7}{\textsf{Nai}}$  ♡</p>
+<h3 align="center">(ゝ。∂) . ㅤ۫　  $\textcolor{#BCCDBD}{\textsf{Chai}}$  . ㅤ۫　     $\textcolor{#DDDFC7}{\textsf{Nai}}$ㅤ۫　 $\textcolor{#BCCDBD}{\textsf{Sugar}}$  ♡</p>
 
 ###
 
