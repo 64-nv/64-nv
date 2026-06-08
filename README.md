@@ -10,7 +10,7 @@
 
 ###
 
-<h3 align="center">ִ    ࣪  $\textcolor{#3D4955}{\textsf{theყ}}$   $\textcolor{#EFFAEA}{\textsf{ₒᵣ}}$  $\textcolor{#3D4955}{\textsf{them}}$    ➣  ㅤ۫　  $\textcolor{#10404C}{\textsf{6teen}}$!  ㅤ۫　  Ი𐑼 .
+<h3 align="center">ִ    ࣪  $\textcolor{#3D4955}{\textsf{theყ}}$   $\textcolor{#EFFAEA}{\textsf{ₒᵣ}}$  $\textcolor{#3D4955}{\textsf{them}}$    ➣  ㅤ۫　  $\textcolor{#10404C}{\textsf{6t🅴🅴n}}$!  ㅤ۫　  Ი𐑼 .
 
 ###
 
