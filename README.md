@@ -19,4 +19,6 @@
 
 ###
 
-<img align="center" src="705d432ef2dddb79b69451c85d984f86 (1).gif" width="1000x1008">
+<p align="center">
+  <img src="705d432ef2dddb79b69451c85d984f86 (1).gif" width="300">
+</p>
