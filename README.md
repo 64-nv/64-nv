@@ -1,5 +1,5 @@
-<p align="center">Meet Flower!
-<p align="center">Welcome
+<p align="center">$\textcolor{#3D4955}{\textsf{M🄴🄴t Flowₑᵣ!}}$
+<p align="center">$\textcolor{#10404C}{\textsf{𝐖el𝚌ome}}$
 <p align="center">
   <img src="1000087908.png"width="400">
 </p> 
