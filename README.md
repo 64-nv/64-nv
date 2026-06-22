@@ -1,26 +1,15 @@
-<p align="center">$\textcolor{#DDDFC7}{\textsf{M🄴🄴t Flowₑᵣ!}}$
-<p align="center">$\textcolor{#4E80B4}{\textsf{𝐖el𝚌o̲m̲e̲      }}$   ヽ(o^ ^o)ﾉ
-<p align="center">
-  <img src="1000087907-removebg-preview.png"width="500">
-</p> 
-<h3 align="center">$\textcolor{#DDDFC7}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌}}$<br>
-<h2 align="center">𓏼    𓌔ㅤ۫　      $\textcolor{#4E80B4}{\textsf{am🅈}}$ ノ   $\textcolor{#BCCDBD}{\textsf{Flow𝚎r}}$  ㅤ۫　    ✿  ． 
+⟡ ———————— ⪩  ♡゙  ⪨︎ ———————— ⟢
 
-###
+hellioo! my readme is in progress
 
-<h3 align="center">⑅  ㅤ۫　 $\textcolor{#EFFAEA}{\textsf{Ⓘ}}$ $\textcolor{#5A8EC2}{\textsf{l𝚘v𝚎 mყ}}$ $\textcolor{#DDDFC7}{\textsf{fri𝚎nds}}$    ᵎᵎ    ︶   ꪆ<br> .    ㅤ۫　      ʾʿ    $\textcolor{#DDDFC7}{\textsf{c + h anყ}}$         ㅤ۫　      ♩ ⠀</h5>
+sorry if it takes a while
 
-###
+i'll be making my own graphics
 
-<h3 align="center">ִ    ࣪  $\textcolor{#BCCDBD}{\textsf{theყ}}$   $\textcolor{#DDDFC7}{\textsf{ₒᵣ}}$  $\textcolor{#4E80B4}{\textsf{them}}$    ➣  ㅤ۫　  $\textcolor{#4E80B4}{\textsf{6t🅴🅴n}}$!  ㅤ۫　  Ი𐑼 .
+so, int in pony town or
 
-###
+wsp me, always afk and c + h!!
 
-<h3 align="center">(ゝ。∂) . ㅤ۫　  $\textcolor{#BCCDBD}{\textsf{Chai}}$  . ㅤ۫　     $\textcolor{#DDDFC7}{\textsf{Nai}}$ㅤ۫　 $\textcolor{#BCCDBD}{\textsf{Sugar}}$  ♡</p>
+ᰍ     ׄ     (＞。☆)
 
-###
-
-<p align="center">
-  <img src="ab0dae4358634e380fcb6ea227ed3c7b.gif" width="500">
-</p>
-( in progress hwhewh (= ⩊ =)೨ )
+[ Don't forget! In progress!! ]
