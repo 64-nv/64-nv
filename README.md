@@ -4,6 +4,7 @@
   <img src="123 sin título_20260629232337.png"width="500">
   
   (I might change it, by the way, the graphics i'll make are mine)
+  
 ⟡ ———————— ⪩  ♡゙  ⪨︎ ———————— ⟢
 
 hellioo! my readme is in progress
