@@ -1,7 +1,5 @@
 <p align="center">
-  <img src="125 sin título_20260630000008.png"width="500">
-<p align="center">
-  <img src="123 sin título_20260629232337.png"width="500">
+  <img src="131 sin título_20260706232342.png"width="500">
   
   (I might change it, by the way, the graphics i'll make are mine)
   
