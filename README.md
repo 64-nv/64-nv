@@ -1,4 +1,7 @@
 <p align="center">
+  <gif src="ezgif.com-gif-maker_16.gif"width="500">
+    
+<p align="center">
   <img src="131 sin título_20260706232342.png"width="500">
   
   (I might change it, by the way, the graphics i'll make are mine)
