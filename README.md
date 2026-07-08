@@ -2,7 +2,7 @@
   <img src="ezgif.com-gif-maker_16.gif"width="1000">
     
 <p align="center">
-  <img src="131 sin título_20260706232342.png"width="500">
+  <img src="132 sin título_20260708030504.png"width="500">
   
   (I might change it, by the way, the graphics i'll make are mine)
   
