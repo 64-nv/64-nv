@@ -10,5 +10,5 @@ wip
 <p align="center">
   
 <a href="https://64-nvv.atabook.org/">
-<img src="157 sin título_20260809001829.png" width="200">
+<img src="157 sin título_20260809021255.png" width="200">
 </a>
