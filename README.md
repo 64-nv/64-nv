@@ -3,12 +3,8 @@
 ![](https://komarev.com/ghpvc/?username=64-nv&label=＾ܫ＾:&color=B0CDC0&style=plastic)
 
 <p align="center">
-  <img src="170 sin título_20260830203222.png" width="300">
+  <img src="11 sin título_20260907025748.png"width="300">
 
 <p align="center">
-  
-<a href="https://64-nvv.atabook.org/">
-<img src="168 sin título_20260831022521.png" width="200">
-</a>
+  I fucking hate everyone
 
-in prog yet...
