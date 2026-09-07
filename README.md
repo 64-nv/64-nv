@@ -8,4 +8,10 @@
 <p align="center">
  ${\textsf{\color{#ceb7bb}I fucking hate}}$
   
+  
+ ${\textsf{\color{#fbeccb}everyone}}$
+ 
+
+
+  
 
