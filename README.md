@@ -6,5 +6,6 @@
   <img src="11 sin título_20260907025748.png"width="300">
 
 <p align="center">
-  I fucking hate everyone
+ ${\textsf{\color{#ceb7bb}I fucking hate}}$
+  
 
