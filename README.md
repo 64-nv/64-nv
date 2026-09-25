@@ -4,7 +4,7 @@
 
  <p align="center">
   <tr>
- <tr><a href="https://rentry.co/nuvers">rentry</a>ㅤㅤ⠀ㅤㅤ♡⠀ ㅤㅤㅤ <td><a href="https://en.pronouns.page/@nn.v7">pronouns</a>
+ <tr><a href="https://rentry.co/nuversss">rentry</a>ㅤㅤ⠀ㅤㅤ♡⠀ ㅤㅤㅤ <td><a href="https://en.pronouns.page/@nn.v7">pronouns</a>
 
 
 
