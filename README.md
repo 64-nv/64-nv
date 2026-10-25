@@ -3,3 +3,8 @@
 
 <p align="center">
   <img src="46 sin título_20261025013844.png" height="50"> 𖹭r aֹოy
+  <p align="center">
+  
+<a href="https://en.pronouns.page/@nuvers">
+<img src="47 sin título_20261025021333.png" width="200">
+</a>
