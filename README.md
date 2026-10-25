@@ -6,5 +6,10 @@
   <p align="center">
   
 <a href="https://en.pronouns.page/@nuvers">
-<img src="47 sin título_20261025021353.png" width="200">
+<img src="47 sin título_20261025021353.png" width="100">
+</a>
+<p align="center">
+  
+<a href="https://64-nvv.atabook.org/">
+<img src="48 sin título_20261025023625.png" width="100">
 </a>
