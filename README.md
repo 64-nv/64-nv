@@ -6,5 +6,5 @@
   <p align="center">
   
 <a href="https://en.pronouns.page/@nuvers">
-<img src="47 sin título_20261025021333.png" width="200">
+<img src="47 sin título_20261025021353.png" width="200">
 </a>
