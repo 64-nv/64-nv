@@ -1,2 +1,2 @@
 <p align="center">
-  <img src="ezgif.com-gif-maker (1).gif" width="700">
+  <img src="ezgif.com-gif-maker (1).gif" width="500">
